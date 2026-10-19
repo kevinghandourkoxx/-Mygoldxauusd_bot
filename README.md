@@ -1,0 +1,1 @@
+# -Mygoldxauusd_bot
